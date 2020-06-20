@@ -10,3 +10,4 @@ Howard Joel Wolowitz ist ein fiktiver Charakter der Serie The Big Bang Theory. E
 * Astronaut
 * Ingenieur
 
+> Die Liebe ist kein Sprint, sondern ein Marathon. Ein andauerndes Bemühen, dass erst endet wenn sie niedersinkt in deine Arme - oder dir Pfefferspray in die Augen sprüht.
